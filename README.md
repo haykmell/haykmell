@@ -10,4 +10,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: Discod - Hayk#0321
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I wake up at 6.00 AM every day 
--->
